@@ -104,7 +104,7 @@ We may update this Privacy Policy from time to time. We will post the updated ve
 
 If you have questions about this Privacy Policy or our practices, please contact us at:
 
-**hinoro.studio@gmail.com**
+**easyradio-support@googlegroups.com**
 
 ---
 
